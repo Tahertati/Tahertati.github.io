@@ -1,5 +1,5 @@
 ## I am an experienced Web Developer and DevOps Professional with a passion for web development and cloud computing
-# [Resume](https://www.jaidev.pro/assets/jai-resume.pdf)
+# [Resume]()
 
 ### Lets Connect 
 - [LINKED IN  - /in/Taher Tati](https://www.linkedin.com/in/taher-tati-b1a26626b) 
