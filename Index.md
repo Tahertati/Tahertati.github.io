@@ -2,7 +2,7 @@
 # [Resume](https://www.jaidev.pro/assets/jai-resume.pdf)
 
 ### Lets Connect 
-- [LINKED IN  - /in/devjai](https://www.linkedin.com/in) 
+- [LINKED IN  - /in/Taher Tati](https://www.linkedin.com/in/TaherTati) 
 - [GITHUB - /Tahertati](https://github.com/Tahertati) 
 - [INSTA - @taher_tati52](https://instagram.com/taher_tati52)
 
